@@ -1,1 +1,1 @@
-java is good langusgejava is good langusge
+java is good langusgejava is good langusge and independent
